@@ -7,3 +7,6 @@ Breathing Stones
 1. Nonhuman
 2. Nonlaguage
 3. Created
+
+
+https://chatgpt.com/share/69bd6318-9d98-8008-b90d-e31252fdbbbb
